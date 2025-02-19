@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **aleksa.djuric.dj@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ktQvxLUxh1_yN33gM9GmHIhAapJVtsxq/view](https://drive.google.com/file/d/1ktQvxLUxh1_yN33gM9GmHIhAapJVtsxq/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1ktQvxLUxh1_yN33gM9GmHIhAapJVtsxq/view](https://drive.google.com/file/d/1LXre4u9C6RhyY0Eyp8Nn6YtF00phUJxt/view?usp=sharing)
 
 - ⚡ Fun fact **love the gym, fishing and gaming**
 
