@@ -8,7 +8,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1ktQvxLUxh1_yN33gM9GmHIhAapJVtsxq/view](https://drive.google.com/file/d/1LXre4u9C6RhyY0Eyp8Nn6YtF00phUJxt/view?usp=sharing)
 
-- ⚡ Fun fact **love the gym, fishing and gaming**
+- ⚡ Fun fact **love the gym, fishing, gaming and Fight Simming :)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
